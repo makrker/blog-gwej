@@ -2,7 +2,7 @@
 ### saya handy dari 8b 
 
 
-[alpukat](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.jp1HUWDb1ioyDkcm4F59owHaE7%26pid%3DApi&f=1)
+![alpukat](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.jp1HUWDb1ioyDkcm4F59owHaE7%26pid%3DApi&f=1)
 
 
 
